@@ -6,9 +6,8 @@ My post on reddit(unixporn) https://www.reddit.com/r/unixporn/comments/1ghjv9e/h
 https://github.com/user-attachments/assets/c88ae76c-2662-4f11-b643-7503a8752060
 
 Here's my Wallpaper :D
-
+Author: ilya Kuvshinov ( https://www.instagram.com/kuvshinov_ilya/ )
 https://wallpapercave.com/w/wp13091763
-
 
 ![arvorerosa](https://github.com/user-attachments/assets/980f3170-c033-4dad-93c9-878f437beddd)
 
